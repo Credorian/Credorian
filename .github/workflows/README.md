@@ -1,2 +1,0 @@
-# shafie.netwrk
-portfolio page 
